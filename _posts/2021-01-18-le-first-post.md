@@ -1,3 +1,8 @@
+       ---
+       title: "Objetivos de la política exterior de EU"
+       date: 2021-01-18
+       ---
+
 LOS PRINCIPALES OBJETIVOS DE LA POLÍTICA EXTERIOR DE EU
 
 Protegiendo lo nuestro
