@@ -25,7 +25,7 @@ Estas operaciones incluían un “ejército secreto” bajo auspicio Nazi-Americ
 
 El extremo liberal
 
-El informe NSC 68 era el extremo de la línea dura, y recuerda:las políticas no eran solo teóricas -muchas de ellas eran implementadas. Vayamos al otro extremo, a las palomas. La paloma dominante era sin duda George Kennan, que mandaba el State Department organizando la gestión de personal hasta 1950, cuando fue reemplazado por Nitze—de la oficina de Kennan, que era responsable de la red de Gehlen.
+El informe NSC 68 era el extremo de la línea dura, y recuerda: las políticas no eran solo teóricas -muchas de ellas eran implementadas. Vayamos al otro extremo, a las palomas. La paloma dominante era sin duda George Kennan, que mandaba el State Department organizando la gestión de personal hasta 1950, cuando fue reemplazado por Nitze—de la oficina de Kennan, que era responsable de la red de Gehlen.
 	
 Kennan fue uno de los más inteligentes y lúcidos estrategas de EU y una figura importante en moldear el mundo de posguerra. Sus escritos reflejan una muy interesante visión de la posición “dove”. Un documento a consulta si queremos entender nuestro país es el Policy Palnning Study 23, escrito por Kennan para el personal del State Department en 1948. Extractos de dicho escrito:
 
