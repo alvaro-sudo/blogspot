@@ -2,6 +2,8 @@
 title: "La gran Área 3ª parte"
 date: 2021-01-22
 ---
+DEL LIBRO "HOW THE WORLD WORKS" DE NOAM CHOMSKY
+
 La “Gran” Área iba a incluir el hemisferio occidental, Europa oriental, el lejano oriente, el viajo Imperio Británico (que estaba siendo desmantelado), los incomparables recursos de energía de Oriente Medio (los cuales estaban siendo traspasados a manos americanas a medida que empujabámos a rivales como Francia o Gran Bretaña), el resto del Tercer Mundo y, si era posible, todo el globo. Estos planes era implementados tanto como permitían las oportunidades.
 
 Cada parte del nuevo orden mundial era asignado una función específica. Los paises industriales tenían que ser guiados por los “grandes talleres” de Alemania y Japón, quienes habían demostrado su gran capacidad durante la guerra y ahora pasarían a trabajar bajo la supervisión de EU.
