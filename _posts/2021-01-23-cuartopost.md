@@ -2,6 +2,8 @@
 date: 2021-01-23
 title: "Restaurando el orden tradicional 4ª parte"
 ---
+DEL LIBRO "HOW THE WORLD WORKS" DE NOAM CHOMSKY
+
 Los planificadores de posguerra como Kennan  de dieron cuenta enseguida de que iba a ser fundamental para la salud de US que las otras sociedades occidentales pudieran reconstruirse del daño causado por la guerra con el fin de que pudieran importar de US bienes manufacturados y proveer oprtunidades de inversión (estoy contando Japón como parte de occidente, siguiendo la convención Surafricana de tratar a los japoneses como “blancos honorarios”). Pero era crucial que estas sociedades se reconstrueran de una forma muy específica.
 
 El orden tradicional, de derechas tenía que ser restaurado, con la dominancia de los negocios, el mundo laboral dividido y debilitado y el peso de la reconstrucción situada directamente sobre los hombros de las clases trabajadoras y los pobres.
