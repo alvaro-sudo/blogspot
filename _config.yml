@@ -2,7 +2,7 @@ title: Álvaro Rojas Personal Blog
 author: Álvaro Rojas
 email: alvaro.rojas.wm@gmail.com
 description: > # this means to ignore newlines until "baseurl:"
-  Página dedicada a temas de filosofía, ordenadores, ciencia ficción y música.
+  Página dedicada a particulares temas de interés
 
 # social links
 twitter_username: alvarettos # DO NOT include the @ character, or else the build will fail!
